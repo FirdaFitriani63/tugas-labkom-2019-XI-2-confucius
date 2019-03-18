@@ -7,4 +7,4 @@ tugas-labkom-2019-confucius created by GitHub Classroom <br>
 5.) 17.63.08839 Vicxel Frans P. Nugraha <br>
 6.) 17.63.08842 Wibisono <br>
 7.) 17.63.08827 Sulthan Naufal Anwar <br>
-8.) 17.63.08777 Nurmuna Salsabila P. <br>
+8.) 17.63.08777 Nurmuna Salsabela Putri <br>
